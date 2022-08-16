@@ -1,1 +1,1 @@
-# AWESOME-OSU-SKINS-SUPER-RARE-AND-VERY-COOL-
+# Silver's osu! skin remakes and modifications
